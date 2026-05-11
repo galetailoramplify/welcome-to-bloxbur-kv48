@@ -1,4 +1,4 @@
-#  
+#  Experience brookhaven rp like never before with brookhaven rp smart Scripts, the #1 Script. Includes aimbot and no cooldown for unbeatable
 
 
 
